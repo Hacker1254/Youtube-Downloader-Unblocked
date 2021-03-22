@@ -7,4 +7,4 @@ Like Muisc videos and a few random ones
 # Link
 Idk how long this link will live but it will have some life ¯\_(ツ)_/¯
 
-https://bit.ly/3vP5x0r
+https://bit.ly/3s9u5Pu
